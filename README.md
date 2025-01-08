@@ -11,7 +11,8 @@ Here you can find a collection of open source projects we are working on. We are
 ## Where to find us?
 We are mostly active on:
 - [Instagram](https://www.instagram.com/nduthecomputerclub?igsh=Yml6ZGZhZ3I3bTR4)
-- Whatsapp Channels
+- [Upcoming events](https://timetreeapp.com/public_calendars/tccid/2386351578774064036?date=2024-03-01&referer=timetree&start=2024-03-20)
+- WhatsApp Channels
  > Our whatsapp channel is restricted to students only
 
 
